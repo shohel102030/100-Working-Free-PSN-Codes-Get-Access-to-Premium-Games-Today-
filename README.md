@@ -6,7 +6,7 @@ Are you a PlayStation gamer looking to unlock exclusive content, grab the latest
 **[✅👉 Click Here: FREE PSN FOLLOWERS Generator Tool 👈✅](https://usaofferzon.com/psn)**
 
 
-**[✅👉 Click Here: FREE PSN FOLLOWERS Generator Tool 👈✅]*(https://usaofferzon.com/alloffergiftcard)**
+**[✅👉 Click Here: FREE PSN FOLLOWERS Generator Tool 👈✅](https://usaofferzon.com/alloffergiftcard)**
 
 
 **[✅👉 Click Here: FREE PSN FOLLOWERS Generator Tool 👈✅](https://usaofferzon.com/giftcard)**
